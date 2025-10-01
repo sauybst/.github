@@ -22,7 +22,9 @@ açık kaynak kültürünü destekliyor ve öğrencilere gerçek yazılım geli�
 4. Ekibimiz kod incelemesini yapıp katkını projeye eklesin 🚀  
 
 ## 🌐 Bize Ulaş
-- 📧 Instagram: https://www.instagram.com/sauybst/
+- 📸 Instagram: https://www.instagram.com/sauybst/
+- 📘 Facebook: https://www.facebook.com/sauybst
+- 💼 Linkedin: https://www.linkedin.com/in/sauybst/
 
 ---
 
